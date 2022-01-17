@@ -1,0 +1,1 @@
+Complexities of story telling in film or clips shape our experience. Eliza has conversations to echo concern. Reflect & ponder as if their thoughts are genuine. Just re-directions & well trained system replying to you. Creating interaction within the code.
