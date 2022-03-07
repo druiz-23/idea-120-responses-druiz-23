@@ -1,0 +1,6 @@
+  One image that would be read differently if another medium would be the Nike “Do it” campaign. The general Nike campaign is a hot media that leaves little to interruption from the viewer.
+I believe that if the campaign and ad would have been used in a radio ad it would have not been received the same way. In the original format we have a picture and text that said, “Just Do It”. 
+The campaign was geared towards the athletic community with an inspirational text. If it was in a radio ad, the photo would be missing therefore the context would not have been received the same way. It would not come across as an active inspirational campaign that tied into athletic wear. 
+  The three images that this contains were linguistic, symbolic, and connoted messages. The linguistic is the “Just Do It” and Nike brand that is in the campaign. 
+These show us the brand name that is being sold and the catchy campaign text. The connation in the campaign is the photo used of an athlete running. 
+This is shows the “Just Do It” campaign can be used as a motivational and athletic crusade. In terms of the symbolic message the athlete running in the campaign can also be used as symbolic because Nike uses it to show that anyone can just start a hobby or goal once they start such as running. 
