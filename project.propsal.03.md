@@ -1,0 +1,3 @@
+I plan to make a twine game that revolves around the emotions or thoughts around getting a new puppy. It will lead the user through different scenarios and paths depending on your choices to train or not train your puppy. 
+It will also show the different emotions you can feel when having a new puppy to take care of e.g. (happiness, frustration, and inadequacy). I would like to add graphics or photos of puppies or activities that center around puppies. 
+The ending to the game may differ depending on how much attention and training are given to the puppy. I hope this will help users get in the mindset of being an owner/parent of a new puppy and the steps that need to be taken.  
